@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://TeraBuffaloCoil.github.io/s-p-capital-iq-finance-eo09/ ) |
  |---------------------|----------------------:|
 
 
