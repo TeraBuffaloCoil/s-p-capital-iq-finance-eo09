@@ -1,4 +1,4 @@
-# 
+# S&P Capital IQ offers deep financial insights, market data, and analytics for professionals and institutions.
 
 
 
